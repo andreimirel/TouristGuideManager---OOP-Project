@@ -1,1 +1,0 @@
-# proiect-2025-template
